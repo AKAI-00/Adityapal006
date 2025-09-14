@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Akai
 - 👀 I’m interested in ...cybersecurity
-- 🌱 I’m currently learning ...peneratation testing
+- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...any projects
 - 📫 How to reach me ...on X @Red_aadi
 - 😄 Pronouns: ...
